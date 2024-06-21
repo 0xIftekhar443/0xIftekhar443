@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Picci
+- 👋 Hi, I’m Picci (Loving Brother of Tahmid bhai🥰)
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning Brainfuck
 - 💀 I’m looking to collaborate on nothing 
