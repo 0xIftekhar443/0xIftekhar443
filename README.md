@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning Brainfuck
 - 💀 I’m looking to collaborate on nothing 
-- 📫 How to reach me idk nigger
+- 📫 You can't reach me nigger
 - ⚡ My Teachers : @Overthinker1337 & @CH3COOH1337
 
 <h1><center>উরি বাবা</center></h1>
