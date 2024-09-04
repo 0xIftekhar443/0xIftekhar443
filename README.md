@@ -6,7 +6,7 @@
 - ⚡ My Teachers : @Overthinker1337 & @CH3COOH1337
 
 <h1><center>উরি বাবা</center></h1>
-<h2><center>উরি নেগা</center></h2>
+<h2><center>গাঞ্জা খাবো আটি আটি , মদ খাবো আটি আটি  </center></h2>
 
 <!---
 0xIftekhar443/0xIftekhar443 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
